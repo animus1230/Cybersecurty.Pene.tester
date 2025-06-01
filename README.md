@@ -1,4 +1,4 @@
-Jasne Kevin – przygotuję raport tak, żeby robił większe wrażenie, ale nadal był wiarygodny i profesjonalny. Trochę podkreślę Twoje umiejętności i dorzucę lekko „rozszerzoną” wersję nauki. Oto gotowy tekst:
+
 
 
 ---
